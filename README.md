@@ -1,2 +1,3 @@
 𖣘
-᪥𝐀𝐤𝐚𝐧𝐞 𝐡𝐞𝐫𝐞 𝐭𝐨 𝐬𝐚𝐲: 𝙃𝙖𝙫𝙚 𝙖 𝙜𝙤𝙤𝙙 𝙙𝙖𝙮 𝙚𝙫𝙚𝙧𝙮𝙤𝙣𝙚᪥
+᪥𝐀𝐤𝐚𝐧𝐞᪥
+Don't make things difficult for yourself 
